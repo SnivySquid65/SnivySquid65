@@ -1,4 +1,4 @@
-Hello!  I am SnivySquid65.  This is my github.  In case if you don't know, that Fnf mod is cancelled.  But design for something else is already in progress.  Please wait for more information.
+Hello!  I am SnivySquid65.  This is my github.  Art is a core part of my life, along with coding, and music!  So soon you might see some of that.
 
 <!---
 SnivySquid65/SnivySquid65 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
